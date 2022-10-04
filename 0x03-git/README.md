@@ -1,1 +1,1 @@
-“my second commit”
+hot kid
